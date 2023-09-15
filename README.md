@@ -1,0 +1,1 @@
+# Resource-manual-for-Freshman-SUSTech
